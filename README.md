@@ -12,7 +12,6 @@
 ## Social:
 
 - [Telegram](https://t.me/YOUNEVSKY)
-- [Website](https://younevsky.com)
 
 
 <a>
